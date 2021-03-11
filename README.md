@@ -1,0 +1,1 @@
+there are several ways to prepare molten choco lava cake, and hence it known by different names too. across the the globe it known as chocolate decadence cake,  soufflé, chocolate fondant and even flourless chocolate cake. typically the choco lava cake is prepared with egg white yolk with chocolate syrup, however this recipe is without egg and from plain flour.
